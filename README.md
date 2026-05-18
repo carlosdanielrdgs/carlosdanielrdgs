@@ -28,5 +28,5 @@ Busco aplicar meus conhecimentos acadêmicos e técnicos em projetos práticos, 
 ---
 
 ### 📫 Conecte-se comigo
-* **LinkedIn:** [Carlos Daniel Rodrigues Almeida](www.linkedin.com/in/daniel-rodrigues-554029410)
+* **LinkedIn:** [Carlos Daniel Rodrigues Almeida](https://www.linkedin.com/in/daniel-rodrigues-554029410/)
 *   **E-mail:** [crlsdanielrodrigues28@gmail.com](mailto:crlsdanielrodrigues28@gmail.com)
